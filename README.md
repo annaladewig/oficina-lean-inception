@@ -3,11 +3,18 @@
  
  SQUAD WAKANDA FOREVER:
  
-– Alberto Ferreira 
+– Alberto Ferreira
+
 – Anna Ladewig 
-– Gabriel Santos 
+
+– Gabriel Santos
+
 – João Dueire
+
 – Lícia Verêda 
+
 – Lucas Souza 
+
 – Raphael Silva 
+
 – René de Sousa
